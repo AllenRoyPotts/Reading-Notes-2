@@ -12,4 +12,20 @@ I am Allen and don't know shit about coding - yet
 * do this 
 * do that
 
+# What is growth mindset 
+
+## growth mind set is a winning attitude and willing to learn
+
+# three reminders to stay in growth mindset
+
+* keep learning
+* stay open minded
+* don't let codefellows drive me crazy
+
+~this text sucks rocks
+
+***i love good music so much***
+
+*lets italicize*
+
 
